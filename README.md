@@ -1,0 +1,1 @@
+# analiza_trendow_ai
